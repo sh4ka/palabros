@@ -6,3 +6,4 @@ Palabras ingeniosas:
 - Irrelefante. Elefante que carece de importancia.
 - Rebuznante. Algo en un bucle muy burro.
 - Nerdcesidades. Deseos de hacer cosas nerd.
+- Hipstérico, hipstérica: gente moderna nerviosa.
