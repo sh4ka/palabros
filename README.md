@@ -9,3 +9,4 @@ Palabras ingeniosas:
 - Hipstérico, hipstérica: gente moderna nerviosa.
 - Manguetismo: Atracción que ejercen algunas manos sobre las posesiones ajenas.
 - Socabrón: Agujero en el suelo bastante puñetero.
+- Escritorda: Mujer que escribe cosas muy aburridas.
