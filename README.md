@@ -11,3 +11,4 @@ Palabras ingeniosas:
 - Socabrón: Agujero en el suelo bastante puñetero.
 - Escritorda: Mujer que escribe cosas muy aburridas.
 - Crucerdo: Navío de recreo que hace tiempo que no se lava.
+- Brasilerdo: Bolsonaro.
